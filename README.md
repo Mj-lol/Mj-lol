@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mj-lol
-- 👀 I’m interested in lol
-- 🌱 I’m currently learning lol
-- 💞️ I’m looking to collaborate on autism
+- 👀 I’m interested in getting gud
+- 🌱 I’m currently learning stuff
+- 💞️ I’m looking to collaborate on fun
 - 📫 How to reach me iykyk
 
 <!---
